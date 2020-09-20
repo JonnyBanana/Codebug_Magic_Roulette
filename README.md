@@ -19,3 +19,12 @@ It is possible to try the code directly in the codebug site:
 
 
 http://www.codebug.org.uk/explore/codebug/eVLyudxrxm3sP3ULUaKBvi/magic-roulette/
+
+
+
+</BR>
+
+<a href="https://golden-farm.biz/?r=1673249" target="_blank">
+<img src="https://golden-farm.biz/images/promo/en/728x90.gif"
+alt="Profit every 10 minutes!"></a>
+
